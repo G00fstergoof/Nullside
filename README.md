@@ -1,6 +1,6 @@
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4600.png)
 
-### Info .☘︎ ݁˖
+Info .☘︎ ݁˖
 
 𝒢 Rowan 𓈒⠀he / any⠀
 
@@ -12,7 +12,7 @@
 
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4603.png)
 
-### links!! .☘︎ ݁˖
+links!! .☘︎ ݁˖
 
  -  🥐 [rentry](https://rentry.co/princsstwo)  𖦹  [tt](https://www.tiktok.com/@goofster_goof)
 

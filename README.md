@@ -1,2 +1,4 @@
-![image_alt](
-" Take me for a ride, never gonna close our eyes"
+![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4600.png)
+
+lal
+

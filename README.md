@@ -10,7 +10,7 @@ Info .☘︎ ݁˖
 ᡣ𐭩 heavily shy ◞ fictkin ;; PLS int ⋆
  ﹒⤷ w2i ୧ ∿ ︶ c+h freely!!
 
-![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4603.png)
+![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4609.png)
 
 links!! .☘︎ ݁˖
 

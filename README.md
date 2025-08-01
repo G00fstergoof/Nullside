@@ -1,6 +1,8 @@
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4600.png)
+<h4 align="center"
 
-Info .☘︎ ݁˖
+ 
+<br><b>Info .☘︎ ݁˖</b>
 
 𝒢 Rowan 𓈒⠀he / any⠀
 
@@ -10,14 +12,24 @@ Info .☘︎ ݁˖
 ᡣ𐭩 heavily shy ◞ fictkin ;; PLS int ⋆
  ﹒⤷ w2i ୧ ∿ ︶ c+h freely!!
 
+ ![](https://komarev.com/ghpvc/?username=G00fstergoof&color=5F4738&label=sticks )
+
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4609.png)
 
-links!! .☘︎ ݁˖
+<h4 align="center"
 
- -  🥐 [rentry](https://rentry.co/princsstwo)  𖦹  [tt](https://www.tiktok.com/@goofster_goof)
+</h4>
+<br><b>links!! .☘︎ ݁˖</b>
 
-- 🐈‍⬛ [X/twt](https://x.com/idiotperson671?s=21)  𖦹  [cardd](https://goofstergoofs.carrd.co/)
 
-
+<br><a
+ href="https://rentry.co/princsstwo">rentry
+ </a> ⠀     <a
+href="https://www.tiktok.com/@goofster_goof">tt
+<br><a
+href="https://x.com/idiotperson671?s=21">x/twt
+ </a> ⠀     <a
+href="https://goofstergoofs.carrd.co/">carrd
+ </a>
 
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4599.png)

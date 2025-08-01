@@ -4,7 +4,7 @@
  
  <br><b>Info .☘︎ ݁˖</b>
 
-![](https://komarev.com/ghpvc/?username=G00fstergoof&color=644537&label=sticks )
+![](https://komarev.com/ghpvc/?username=G00fstergoof&color=644537&label=collected_sticks )
 
 𝒢 Rowan 𓈒⠀he / any⠀
 

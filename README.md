@@ -2,7 +2,9 @@
 <h4 align="center"
 
  
-<br><b>Info .☘︎ ݁˖</b>
+ <br><b>Info .☘︎ ݁˖</b>
+
+![](https://komarev.com/ghpvc/?username=G00fstergoof&color=644537&label=sticks )
 
 𝒢 Rowan 𓈒⠀he / any⠀
 
@@ -11,8 +13,6 @@
 ⠀
 ᡣ𐭩 heavily shy ◞ fictkin ;; PLS int ⋆
  ﹒⤷ w2i ୧ ∿ ︶ c+h freely!!
-
- ![](https://komarev.com/ghpvc/?username=G00fstergoof&color=5F4738&label=sticks )
 
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4609.png)
 

@@ -8,11 +8,11 @@
 
 𝒢 Rowan 𓈒⠀he / any⠀
 
-⠀⤹ bmf⠀〃 PLS int ╰  cudcomf ﾒ
+⠀⤹ bmf⠀〃 PLS int ╰   cudcomf ﾒ
 
 ⠀
 ᡣ𐭩 heavily shy ◞  fictkin ⋆
- ﹒⤷ w2i ୧ ∿ ︶ c+h freely!!
+ ﹒⤷ w2i ୧ ∿ ︶  c+h freely!!
 
 ![image_alt](https://github.com/G00fstergoof/G00fstergoof/blob/main/IMG_4609.png)
 
